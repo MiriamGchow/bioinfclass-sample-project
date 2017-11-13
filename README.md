@@ -23,3 +23,6 @@ Ran the location trees.
 Interesting data.
 Thinking about some other studies now.
 
+## November 13, 3:30PM
+
+New notes about today 
